@@ -1,2 +1,1 @@
-# discord
-Non so come riempire questo spazio
+Non so neanche come riempire questo spazio
